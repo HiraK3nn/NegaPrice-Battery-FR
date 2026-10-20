@@ -1,0 +1,1 @@
+# NegaPrice-Battery-FR
